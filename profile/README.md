@@ -4,6 +4,8 @@
 
 **Basket Random** is an **epic 2-player basketball game** with **crazy ragdoll physics**, hilarious jumps, and unpredictable movements. Every match is a new surprise – with **blazing slam dunks**, **unbalanced courts**, and **funny player animations** that make each round feel totally insane. Whether you’re playing against your friend or challenging the CPU, the goal is simple: **score more hoops than your opponent**!
 
+## <a href="https://1kb.link/gdWuER">👉 Play Basket Random Unblocked Games NOW 👈</a>
+
 ---
 
 ### ⚙️ Key Features
